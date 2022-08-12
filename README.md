@@ -1,1 +1,1 @@
-## Hi there, I'm Harshita 👋 
+## Hi there 👋 
